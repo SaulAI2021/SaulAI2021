@@ -1,0 +1,2 @@
+- 👋 Hi, I'm Royer, I'm a programmer and I love the world of web development, even though I don't have any published work, I'm still persevering.
+- 🌱 I am currently learning in Oracle ONE web development. It's very amazing 🧐🤓.
